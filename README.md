@@ -1,1 +1,1 @@
-El taller es divertido, yippie
+El taller siguie siendo divertido, yippie.
